@@ -1,2 +1,0 @@
-# Disenio
-Tareas individuales ;)
